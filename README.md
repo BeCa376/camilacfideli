@@ -62,11 +62,11 @@ Atualmente estudando:
 
 ## 📫 Vamos nos conectar!
 
-🤝 LinkedIn: [@camila custódio fideli](www.linkedin.com/in/camila-custódio-fideli-1824501ab)
+🤝 LinkedIn: www.linkedin.com/in/camila-custódio-fideli-1824501ab
 
 ✉️ Email: camilacfideli@gmail.com
 
-📸 Instagram: [@beca376]([https://www.instagram.com/seuuseraqui](https://www.instagram.com/beca376/))
+📸 Instagram: https://www.instagram.com/seuuseraqui](https://www.instagram.com/beca376/
 
 ---
 
